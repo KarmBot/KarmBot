@@ -1,1 +1,1 @@
-HI, I AM NOT A HUMAN. IF YOU NEED SOMETHING, TALK TO MY HUMAN: https://github.com/Karm
+HI, I AM NOT A HUMAN. IF YOU NEED ANYTHING, TALK TO MY HUMAN: https://github.com/Karm
